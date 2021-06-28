@@ -1,0 +1,1 @@
+Curso muito bom, inclusive este módulo de git está incrível, certamente se sobrar um tempinho vou vê-lo novamente!
